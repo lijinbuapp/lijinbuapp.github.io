@@ -1,1 +1,1 @@
-# lijinbuapp.github.io
+欢迎使用礼金簿记账本，有任何问题或者反馈请联系邮箱：lijinbuapp@hotmail.com
